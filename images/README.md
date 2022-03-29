@@ -1,0 +1,1 @@
+We store Figure2 of the paper entitled "Differential Vaginal Microbiota Profiling in Lactic Acid-producing Bacteria between Infertile Women with and without Chronic Endometritis" written by Tanaka et al., 2022.
